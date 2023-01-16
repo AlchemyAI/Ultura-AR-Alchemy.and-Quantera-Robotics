@@ -31,3 +31,5 @@
 [Step By Step Kitchen Engine Rebuild Part 3: Pistons And Rods](https://youtu.be/WOUSlIwC7vc)
 
 [Step By Step Home Kitchen Engine Rebuild Part 4: Cylinder Heads](https://youtu.be/zVcRACOu1eQ)
+
+[Blueprinting For The Home Engine Builder - How To Get The Most From The Parts You Already Have](https://youtu.be/gemBQAsdfkc)
