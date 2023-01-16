@@ -39,3 +39,5 @@
 [Blueprinting For The Home Engine Builder - How To Get The Most From The Parts You Already Have](https://youtu.be/gemBQAsdfkc)
 
 [Hemi GTX Teardown Uncovers A Giant Heap Of Issues](https://youtu.be/I-XYgwI4Zqs)
+
+[Hemi GTX, New Block, Crank And Heads](https://youtu.be/X8xm_DmsvBU)
