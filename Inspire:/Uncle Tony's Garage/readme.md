@@ -63,3 +63,6 @@
 [Premature Camshaft Death Revisited - Lobe Confusion, Lifter Patterns And Break-In Oil Controversy](https://youtu.be/8PkVMI6rB18)
 
 [Magnum vs. LA. Side By Side Comparison](https://youtu.be/ZxHmKv-4zGY)
+
+## Playlist:
+[Internal Combustion Engine Science](https://www.youtube.com/playlist?list=PLA6afW-Gw7oy8GPTUlA2ItOllrEuBnJXZ)
