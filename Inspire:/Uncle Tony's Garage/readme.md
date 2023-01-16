@@ -64,5 +64,9 @@
 
 [Magnum vs. LA. Side By Side Comparison](https://youtu.be/ZxHmKv-4zGY)
 
+[Power Timing Secrets For Classic Cars](https://youtu.be/kAgsMzAxaac)
+
+[Understanding The Slant Six](https://youtu.be/b8Y96xywS-E)
+
 ## Playlist:
 [Internal Combustion Engine Science](https://www.youtube.com/playlist?list=PLA6afW-Gw7oy8GPTUlA2ItOllrEuBnJXZ)
