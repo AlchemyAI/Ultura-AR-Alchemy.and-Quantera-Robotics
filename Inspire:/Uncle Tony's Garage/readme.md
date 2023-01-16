@@ -1,4 +1,6 @@
 # Knowledge
+[Hot Rod Economics - Investing In Your Ability To Build Cars](https://youtu.be/oMIIrulzwu8)
+
 [Your First Engine Job -Stripping Accessories, Organizing Parts & Fasteners And Preliminary Cleaning](https://youtu.be/OIY0FjaxQ1o)
 
 [Your First Engine Job - The Autopsy Begins On Our 4.0 Core, And We Start To Discover It's Issues](https://youtu.be/jL0G1nAfNo4)
@@ -57,3 +59,7 @@
 [PSA Video For Younger Guys Trying To Revive Ancient Cars - YOU Are The Computer!](https://youtu.be/8ujNCBo2Rt4)
 
 [Mostly Universal Carburetor Setup And Adjustment Made Simple. How To Achieve A Clean Smooth Idle](https://youtu.be/1K43mK39jTM)
+
+[Premature Camshaft Death Revisited - Lobe Confusion, Lifter Patterns And Break-In Oil Controversy](https://youtu.be/8PkVMI6rB18)
+
+[Magnum vs. LA. Side By Side Comparison](https://youtu.be/ZxHmKv-4zGY)
