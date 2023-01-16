@@ -55,3 +55,5 @@
 [Hemi GTX, New Block, Crank And Heads](https://youtu.be/X8xm_DmsvBU)
 
 [PSA Video For Younger Guys Trying To Revive Ancient Cars - YOU Are The Computer!](https://youtu.be/8ujNCBo2Rt4)
+
+[Mostly Universal Carburetor Setup And Adjustment Made Simple. How To Achieve A Clean Smooth Idle](https://youtu.be/1K43mK39jTM)
