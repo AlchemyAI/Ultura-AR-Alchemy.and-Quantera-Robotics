@@ -17,3 +17,5 @@
 [Perfect Daily Driver 10 - Cylinder Head Porting Basics](https://youtu.be/zt5mel3Zv-M)
 
 [Perfect Daily Driver 6 - DIY Engine Block Prep](https://youtu.be/UtpoxTbRoaI)
+
+[Perfect Daily Driver 7 - Talkin' Crankshafts](https://youtu.be/GV1aVT1BYoQ)
