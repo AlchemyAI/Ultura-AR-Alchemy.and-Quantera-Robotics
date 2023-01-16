@@ -16,7 +16,8 @@
 [RIP Engine - Dead Before It Ever Had A Chance. Break-In Period Goes Wrong, Time To Start Over Again](https://youtu.be/Ws5BPDMp7Zo)
 - relation: -> https://www.google.com/search?q=glazed+cylinder+walls
 - https://www.auroragenerators.com/post/diesel-engine-glazing-carbon-buildup
-- 
+- https://powerlite.com.au/what-is-generator-glazing/
+
 [Perfect Daily Driver 10 - Cylinder Head Porting Basics](https://youtu.be/zt5mel3Zv-M)
 
 [Perfect Daily Driver 6 - DIY Engine Block Prep](https://youtu.be/UtpoxTbRoaI)
