@@ -22,3 +22,10 @@
 
 [The Myths And Realities Of Carburetor Sizing- History Proves The Formulas Don't Work](https://youtu.be/HdF7IAWFT8w)
 
+[Synthetic vs Conventional Oil In Classic Cars](https://youtu.be/gdRXSRqG0Y0)
+
+[Step By Step Kitchen Engine Rebuild Part 1: The Block](https://youtu.be/DnbsVckXjYg)
+
+[Step By Step Kitchen Engine Rebuild Part 2: The Crankshaft](https://youtu.be/SPJEztKjJ5c)
+
+[Step By Step Kitchen Engine Rebuild Part 3: Pistons And Rods](https://youtu.be/WOUSlIwC7vc)
