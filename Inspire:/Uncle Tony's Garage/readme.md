@@ -34,6 +34,16 @@
 
 [Step By Step Kitchen Engine Rebuild Part 3: Pistons And Rods](https://youtu.be/WOUSlIwC7vc)
 
+[The Island Of Misfit Mopars](https://youtu.be/JAB4ujcjNHA)
+
+[The Curious Case Of The Secret Super Stock Mopar](https://youtu.be/CZB1XXPUW38)
+
+[Finally! Some Solid Information Regarding The Bad Camshaft Epidemic](https://youtu.be/WzYHae7yXiA)
+
+[Inside The Amazing Chrysler Unibody](https://youtu.be/c1j-LL-0or0)
+
+[American Musclecar Evolution - How Chevrolet Made It To The Top And Stayed There](https://youtu.be/ey7WippcuCI)
+
 [426 Hemi GTX - Let's Go For A Ride!](https://youtu.be/BD4v7v2nGIE)
 
 [Step By Step Home Kitchen Engine Rebuild Part 4: Cylinder Heads](https://youtu.be/zVcRACOu1eQ)
